@@ -1,0 +1,1 @@
+# Designing-Cognition-The-Examined-Workflow-as-an-Incentive-Compatible-Learning-System
